@@ -1,7 +1,7 @@
 SRINIVASH.K
 
 chennai - 8807408717 -
-nivashstark765@gmail.com 
+theonlynivash@gmail.com
 
 FROM
 ARANTHANGI 
